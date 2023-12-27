@@ -1,0 +1,1 @@
+# Simple-Power-BI-Project--Global-Landslide
